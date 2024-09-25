@@ -1,1 +1,0 @@
-# gnanachai.github.io
